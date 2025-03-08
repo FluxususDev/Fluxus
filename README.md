@@ -1,4 +1,4 @@
-# ⚡ Fluxus Executor – The Best FREE Roblox Executor
+# Fluxus Executor – The Best FREE Roblox Executor
 
 ![Fluxus Executor](https://scontent.fiev23-1.fna.fbcdn.net/v/t39.30808-6/469572392_587319940912871_1374961305570427296_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=127cfc&_nc_ohc=sheouAgSkaIQ7kNvgEUMTbH&_nc_oc=AdhxVRZ5z5ZipefMwtLMTfmEQ0Tp3XVpGJaL3ctuRpZZt-PC8xwO8x3ZsHNxvJd9trU&_nc_zt=23&_nc_ht=scontent.fiev23-1.fna&_nc_gid=Abt4xhxOPyb4krURYomUv9C&oh=00_AYEa7VP3c-DyKeI3tfGd0jgmqW9hX-OQBrVGYqIjmYjtfw&oe=67D1D293)
 
